@@ -3,7 +3,7 @@
 Group No.- 7
 Members -
 	 1. Kunal (12012001)
-	 2. Gayatri (12012060)
+	 2. Hansi (12113073)
 	 3. Baljeet (12012032)
 
 Thanks.
